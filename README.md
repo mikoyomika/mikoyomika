@@ -4,7 +4,7 @@
 Hello! This is a WIP profile as I'm still figuring out how to do this, so it might look a little wonky. Also, This is specifically formatted for pcs/laptops so might look bad in mobile.
 
 ## **$\color{#ed93cc}{\text{About me!}}$**
-&emsp; &emsp;**$\color{#e36ba7}{\texttt{• I don't have much to say about myself, to be honest. It's best that you visit my strawpage}}$ $\color{#e36ba7}{\texttt{for more info. But I like countryhumans, and I typically stay in that area in the main safe server.}}$**<br>
+&emsp; &emsp;**$\color{#e36ba7}{\texttt{• I don't have much to say about myself, to be honest. It's best that you visit my strawpage}}$ $\color{#e36ba7}{\texttt{for more info. I like countryhumans, and I typically stay in that area in the main safe server.}}$**<br>
 &emsp; &emsp;**$\color{#e36ba7}{\texttt{• Int \\& C+H please! I do recommend whispering to me when interacting (w2i), but it isn't necessary.}}$ $\color{#e36ba7}{\texttt{ I occasionally go AFK, but not much unless I state so in my name so feel free to!}}$** <br>
 
 ## **$\color{#ed93cc}{\text{Other things related to my interest!}}$**
