@@ -1,6 +1,7 @@
 ‎
 # **$\color{#ed93cc}{\text{. ݁⋆ ۶ৎ ݁˖ . ݁Miko Yomika! ⊹ ࣪ ˖ ໒꒱}}$**
-<img width="1184" height="395" alt="image" src="https://github.com/user-attachments/assets/6e3cba20-a1a5-4561-994b-247a4394e5e6" />
+<img width="1184" height="395" alt="image" src="https://github.com/user-attachments/assets/8921dbc3-37ff-463c-855f-db79b666407c" />
+
 Hello! This is a WIP profile as I'm still figuring out how to do this, so it might look a little wonky. Also, This is specifically formatted for pcs/laptops so might look bad in mobile.
 
 ## **$\color{#ed93cc}{\text{About me!}}$**
